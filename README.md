@@ -1,1 +1,1 @@
-# vb0v.github.com
+vb0v.vb0v.io
